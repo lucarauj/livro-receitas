@@ -12,7 +12,7 @@ _Itálico_
 
 - 1 colher de sal
 - 1 copo de água
-- 
+- 250 g de flocos de milho
 
 
 
